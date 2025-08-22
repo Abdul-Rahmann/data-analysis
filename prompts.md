@@ -1,0 +1,1 @@
+I wanna hone my data analysis skills by constantly analysinxing differnet datasets and drawing imsgihts - Can you help me achieve this? And what suggestions and best practice would you give me as a seasoned data data analyst?
